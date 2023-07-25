@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **patramukesh721435@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/mr2sanra](https://tinyurl.com/mr2sanra)
+- 📄 Know about my experiences [https://tinyurl.com/4pmwapuy](https://tinyurl.com/4pmwapuy)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
